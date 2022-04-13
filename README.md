@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @0xhanvalen
+- 👀 I’m interested in being based
+- 🌱 I’m currently learning how to be based
+- 💞️ I’m looking to collaborate on defi + nft
+- 📫 han@0xhanvalen.com
